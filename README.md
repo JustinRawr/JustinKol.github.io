@@ -1,0 +1,2 @@
+# JustinKol.github.io
+Gomenasaii 
